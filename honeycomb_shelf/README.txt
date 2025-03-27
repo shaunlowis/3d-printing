@@ -1,0 +1,1 @@
+Honeycomb Wall Shelf two sizes - Ripiano a nido d'ape due misure by Basement_Lab on Thingiverse: https://www.thingiverse.com/thing:6584042
